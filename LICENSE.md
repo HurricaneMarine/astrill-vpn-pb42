@@ -1,4 +1,4 @@
-
+Get the ultimate Astrill VPN addon with ultimate Astrill VPN Addon | dynamic-IP + smart-DNS. Featuring dynamic-IP and smart-DNS, it's the best choice for secure and private
 
 
 
